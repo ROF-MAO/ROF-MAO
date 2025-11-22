@@ -7,5 +7,5 @@
 1. fandom:_UMA R1999 Medlist CRK PTN WUWA_
 2. my fav:_MCB ORV BL MANHWA VTUBER HI3_
 
-![IMG_20240215_113003](https://github.com/user-attachments/assets/295463eb-b683-47de-baa8-4458cff92b2e)
-_aww thank you⚔️_
+![IMG_20251122_195417](https://github.com/user-attachments/assets/74ad5b4d-b2d8-4fd2-a541-8083cef252e8)
+_...thank you⚔️_
