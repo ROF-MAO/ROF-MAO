@@ -5,7 +5,7 @@
 ![IMG_20240730_212125](https://github.com/user-attachments/assets/eedd8145-d85d-40b1-b6d1-72c18a463334)
 `ahhh the boys`
 1. fandom:_UMA R1999 Medlist CRK PTN WUWA_
-2. my fav:_MCB ORV BL MANHWA VTUBER_
+2. my fav:_MCB ORV BL MANHWA VTUBER HI3_
 
 ![IMG_20240215_113003](https://github.com/user-attachments/assets/295463eb-b683-47de-baa8-4458cff92b2e)
 _aww thank you⚔️_
