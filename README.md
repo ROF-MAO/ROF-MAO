@@ -6,7 +6,9 @@
 `ahhh the boys`
 ### ★^_^★ ###
 1. fandom:_UMA R1999 Medlist CRK PTN WUWA_
-2. my fav:_MCB ORV BL MANHWA VTUBER HI3_
+2. my fav:_MCB ORV BL MANHWA VTUBER HI3 YS_
 
-![IMG_20251122_195417](https://github.com/user-attachments/assets/74ad5b4d-b2d8-4fd2-a541-8083cef252e8)
-_...thank you⚔️_
+![IMG_20251207_203234](https://github.com/user-attachments/assets/642b7c60-a17a-4bea-84b0-5304f466f8fe)
+_Aishi family_
+
+_thank you🔪🩸_
