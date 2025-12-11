@@ -12,3 +12,5 @@
 _Aishi family_
 
 _thank you🔪🩸_
+![IMG_20251211_181200](https://github.com/user-attachments/assets/6ad17ac7-b1a5-4296-8ad5-6cc461bce77c)
+>:3
