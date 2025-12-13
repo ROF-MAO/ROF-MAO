@@ -8,8 +8,8 @@
 1. fandom:_UMA R1999 Medlist CRK PTN WUWA_
 2. my fav:_MCB ORV BL MANHWA VTUBER HI3 YS_
 
-![IMG_20251207_203234](https://github.com/user-attachments/assets/642b7c60-a17a-4bea-84b0-5304f466f8fe)
-_Aishi family_
+![IMG_20251213_195117](https://github.com/user-attachments/assets/a633027d-6eb2-435a-8677-527e55d90f64)
+_GakuKai "Yaoi"_
 
 _thank you🔪🩸_
 ![IMG_20251212_215354](https://github.com/user-attachments/assets/88922b65-18e7-46fa-82c8-b732bc551333)
