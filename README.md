@@ -1,7 +1,9 @@
-![IMG_20251228_120838](https://github.com/user-attachments/assets/88ed4899-2897-44bc-9c0a-864925f75f0b)
-_” bocchi the rock ”_
+![IMG_20260102_215705](https://github.com/user-attachments/assets/c20e7f5c-313c-409c-8946-b12ccd854f14)
+![IMG_20260102_215757](https://github.com/user-attachments/assets/99507bb9-e894-4844-8aa4-4a64721c2822)
+![IMG_20260102_215946](https://github.com/user-attachments/assets/a8d9529a-1cb8-4f99-87ef-1b37ee97d669)
+_” favorite character⁠♡ ”_
 
-_“love you girls :3“_
+♡⁠‿DADJ & bang dream⁠‿⁠♡
 
 ### love fandom bocchi... ###
 1. fandom:_UMA R1999 Medlist CRK PTN WUWA SXF BTR_
