@@ -3,7 +3,7 @@
 ![IMG_20260102_215946](https://github.com/user-attachments/assets/a8d9529a-1cb8-4f99-87ef-1b37ee97d669)
 _” favorite character⁠♡ ”_
 
-♡⁠‿DADJ & bang dream⁠‿⁠♡
+♡⁠‿D4DJ & bang dream⁠‿⁠♡
 
 ### fandom...⁠♡ ###
 1. fandom:_UMA R1999 Medlist CRK PTN WUWA SXF BTR_
