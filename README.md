@@ -5,6 +5,5 @@ _” favorite character⁠♡ ”_
 
 ♡⁠‿D4DJ & bang dream⁠‿⁠♡
 
-### fandom...⁠♡ ###
-1. fandom:_UMA R1999 Medlist CRK PTN WUWA SXF BTR_
-2. my fav:_MCB ORV BL MANHWA VTUBER HI3 YS_
+### favorite character⁠...!? ###
+wip...
