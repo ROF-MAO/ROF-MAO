@@ -6,4 +6,5 @@ _” favorite character⁠♡ ”_
 ♡⁠‿D4DJ & bang dream⁠‿⁠♡
 
 ### favorite character⁠...!? ###
-wip...
+1. UMA = oguri cap • haru urara • espoir city
+2. r1999 wipp..
