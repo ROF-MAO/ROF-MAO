@@ -8,6 +8,7 @@ _” favorite character⁠♡ ”_
 ### favorite character⁠...!? ###
 1. UMA = oguri cap ° haru urara ° espoir city
 2. r1999 = satsuki ° X
-3. crk = dark cocao ° lemon cookie 
+3. crk = dark cocao ° lemon cookie ° Charcoal cookie 
 4. PTN = F/CHIEF
-5. wip..
+5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon ° aventurine
+WUWA = wip..
