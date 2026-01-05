@@ -6,5 +6,8 @@ _” favorite character⁠♡ ”_
 ♡⁠‿D4DJ & bang dream⁠‿⁠♡
 
 ### favorite character⁠...!? ###
-1. UMA = oguri cap • haru urara • espoir city
-2. r1999 wipp..
+1. UMA = oguri cap ° haru urara ° espoir city
+2. r1999 = satsuki ° X
+3. crk = dark cocao ° lemon cookie 
+4. PTN = F/CHIEF
+5. wip..
