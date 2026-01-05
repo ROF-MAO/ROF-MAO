@@ -11,4 +11,6 @@ _” favorite character⁠♡ ”_
 3. crk = dark cocao ° lemon cookie ° Charcoal cookie 
 4. PTN = F/CHIEF
 5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon ° aventurine
-WUWA = wip..
+6. WUWA = galbrena
+7. DANDAN = vamola x zuma my ship >_<~!
+### ✧⁠*⁠。OSHI ⁠♡~ wait sorry wip..
