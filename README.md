@@ -13,4 +13,6 @@ _” favorite character”_
 5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon ° aventurine ° Kevin kaslana ° Dreamweaver ° THE FINAL LESSON🥀🥀🥀
 6. WUWA = galbrena ° Luuk
 7. DANDAN = vamola x zuma my ship!?  >_<~!
-### ✧⁠*⁠。OSHI ⁠♡~ wait sorry wip..
+### ✧⁠*⁠。OSHI...⁠♡ OH VTUBER UR COOL...!
+1. hololive = 🌙 ° 💅✨° 🖋️ ° 💄 ° ☔ ° 🧟‍♀️
+2. holostars = wip...
