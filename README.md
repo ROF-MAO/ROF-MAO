@@ -16,5 +16,5 @@ _” favorite character”_
 ### ✧⁠*⁠。OSHI...⁠♡ OH VTUBER UR COOL...!
 1. hololive = 🌙 ° 💅✨° 🖋️ ° 💄 ° ☔ ° 🧟‍♀️
 2. holostars = 🖌️ ° 🦝 ° 🎇 ° ⛓️ ° 🔆 ° 🦖
-3. FSP = 🌋🍖 × ♈💜 blazelust :3
+3. FSP = 🌋🍖 × ♈💜 blazelust ° 🪽🟢 ° 👻⛩️
 4. NIJI EN/JP = wip..
