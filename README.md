@@ -15,4 +15,5 @@ _” favorite character”_
 7. DANDAN = vamola x zuma my ship!?  >_<~!
 ### ✧⁠*⁠。OSHI...⁠♡ OH VTUBER UR COOL...!
 1. hololive = 🌙 ° 💅✨° 🖋️ ° 💄 ° ☔ ° 🧟‍♀️
-2. holostars = wip...
+2. holostars = 🖌️ ° 🦝 ° 🎇 ° ⛓️ ° 🔆 ° 🦖
+3. FSP = wip..
