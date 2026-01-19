@@ -4,7 +4,7 @@ _w Family LEGO NINJA GO MY FAV (⁠ㆁ⁠ω⁠ㆁ⁠)_
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city ° gold ship ° curren chan
 2. r1999 = satsuki ° X
-3. crk = dark cocao ° lemon cookie ° Charcoal cookie 
+3. crk = dark cocao ° lemon cookie ° Charcoal cookie ° Venom dough
 4. PTN = F/CHIEF
 5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon ° aventurine ° Kevin kaslana ° Dreamweaver ° THE FINAL LESSON🥀🥀🥀
 6. WUWA = galbrena ° Luuk
