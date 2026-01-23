@@ -9,6 +9,8 @@ _w Family LEGO NINJA GO MY FAV (⁠ㆁ⁠ω⁠ㆁ⁠)_
 5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon ° aventurine ° Kevin kaslana ° Dreamweaver ° THE FINAL LESSON🥀🥀🥀
 6. WUWA = galbrena ° Luuk
 7. DANDAN = vamola x zuma my ship!?  >_<~!
+8. NINJA GO = LLOYD ° KAI X COLE MY SHIP!!!!
+9. arknights endfield = yvonne ° pogranichnik ° endministrator ° ardashir ° ember 
 ### ✧⁠*⁠。OSHI...⁠♡ OH VTUBER UR COOL...!
 1. hololive = 🌙 ° 💅✨° 🖋️ ° 💄 ° ☔ ° 🧟‍♀️
 2. holostars = 🖌️ ° 🦝 ° 🎇 ° ⛓️ ° 🔆 ° 🦖
