@@ -12,8 +12,8 @@ THE COLUMBINA MOON🪽🌙
 8. NINJA GO = LLOYD ° KAI X COLE MY SHIP!!!!
 9. arknights endfield = yvonne ° pogranichnik ° endministrator ° ardashir ° ember 
 ### ✧⁠*⁠。OSHI...⁠♡ OH VTUBER UR COOL...! ° KAMIOSHI = ♡~! CUTE TOO!!
-1. hololive = 🌙~♡ ° 💅✨° 🖋️ ° 💄 ° ☔~♡ ° 🧟‍♀️
-2. holostars = 🖌️~♡ ° 🦝 ° 🎇 ° ⛓️ ° 🔆 ° 🦖~♡
-3. FSP = 🌋🍖 × ♈💜~♡ blazelust ° 🪽🟢~♡ ° 👻⛩️
-4. NIJI EN/JP = ♦️☕ ° 🔑🐍 ° ⚔️~♡ ° ☯️~♡ ° 🧢🪽 ° 🏰🍬~♡ ° 💗🌕 ° 🐧❄️ ° 🖋️~♡ ° 🎧 ° 🔗🤲 ° 🤟~♡ ° 💋💅 ° 🌂🕸️~♡ ° 🐣🎡 ° 🥽 ° 💳💨 ° 🎫👓
+1. hololive = 🌙♡ ° 💅✨° 🖋️ ° 💄 ° ☔♡ ° 🧟‍♀️
+2. holostars = 🖌️♡ ° 🦝 ° 🎇 ° ⛓️ ° 🔆 ° 🦖♡
+3. FSP = 🌋🍖 × ♈💜♡ blazelust ° 🪽🟢~♡ ° 👻⛩️
+4. NIJI EN/JP = ♦️☕ ° 🔑🐍 ° ⚔️♡ ° ☯️♡ ° 🧢🪽 ° 🏰🍬♡ ° 💗🌕 ° 🐧❄️ ° 🖋️♡ ° 🎧 ° 🔗🤲 ° 🤟♡ ° 💋💅 ° 🌂🕸️♡ ° 🐣🎡 ° 🥽 ° 💳💨 ° 🎫👓
 5. VTUBER = wip...
