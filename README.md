@@ -8,7 +8,7 @@ THE COLUMBINA MOON🪽🌙
 4. PTN = F/CHIEF
 5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon ° aventurine ° Kevin kaslana ° Dreamweaver ° THE FINAL LESSON🥀🥀🥀 ° columbina
 6. WUWA = galbrena ° Luuk
-7. DANDAN = vamola x zuma my ship!?  >_<~!
+7. DANDADAN = vamola x zuma my ship!?  >_<~!
 8. NINJA GO = LLOYD ° KAI X COLE MY SHIP!!!!
 9. arknights endfield = yvonne ° pogranichnik ° endministrator ° ardashir ° ember 
 ### ✧⁠*⁠。OSHI...⁠♡ OH VTUBER UR COOL...!
