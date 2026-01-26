@@ -1,5 +1,5 @@
-![IMG_20260123_105014](https://github.com/user-attachments/assets/2a555b93-e195-4dc5-b524-2682766fa493)
-THE COLUMBINA MOON🕊️🌙
+![IMG_20260126_171434](https://github.com/user-attachments/assets/d334c450-a1d1-44a3-88fd-50bc1dd4e7b4)
+call me endministrator....🐧🐧
 
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city ° gold ship ° curren chan
