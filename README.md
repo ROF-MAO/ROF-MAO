@@ -1,5 +1,8 @@
+![IMG_20260201_132030](https://github.com/user-attachments/assets/e8396eea-8152-42a6-bf81-f6d60a9f0343)
 ![IMG_20260126_171434](https://github.com/user-attachments/assets/d334c450-a1d1-44a3-88fd-50bc1dd4e7b4)
-call me endministrator....🐧🐧
+_uh uh hii mc cute_!!! { Female mc }
+
+✧⁠♡๑—————⁠દ 🦝 & 🐧 ⁠⑅——————๑♡｡⁠✧⁠ (⁠☆⁠▽⁠☆⁠)~!
 
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city ° gold ship ° curren chan
