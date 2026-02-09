@@ -9,7 +9,7 @@ _uh uh hii mc cute_!!! { Female mc }
 2. r1999 = satsuki ° X
 3. crk = dark cocao ° lemon cookie ° Charcoal cookie ° Venom dough
 4. PTN = F/CHIEF
-5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon ° aventurine ° Kevin kaslana ° Dreamweaver ° THE FINAL LESSON🥀🥀🥀 ° columbina
+5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon ° aventurine ° Kevin kaslana ° Dreamweaver ° THE FINAL LESSON🥀🥀🥀 ° ashveil ° severian lowell
 6. WUWA = galbrena ° Luuk ° avidius ° cristoforo 
 7. DANDADAN = vamola x zuma my ship!?  >_<~!
 8. NINJA GO = LLOYD ° KAI X COLE MY SHIP!!!!
