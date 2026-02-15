@@ -1,8 +1,5 @@
-![IMG_20260201_132030](https://github.com/user-attachments/assets/e8396eea-8152-42a6-bf81-f6d60a9f0343)
-![IMG_20260126_171434](https://github.com/user-attachments/assets/d334c450-a1d1-44a3-88fd-50bc1dd4e7b4)
-_uh uh hii mc cute_!!! { Female mc }
-
-✧⁠♡๑—————⁠દ 🦝 & 🐧 ⁠⑅——————๑♡｡⁠✧⁠ (⁠☆⁠▽⁠☆⁠)~!
+![IMG_20260215_113726](https://github.com/user-attachments/assets/92797272-a684-41c3-8d49-c57540af1217)
+_hiii hiii from umamusume YURI YURI lesbian (⁠ㆁ⁠ω⁠ㆁ⁠)~! THANK YOU♡_
 
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city ° gold ship ° curren chan
