@@ -2,7 +2,7 @@
 _hiii hiii from umamusume YURI YURI lesbian (⁠ㆁ⁠ω⁠ㆁ⁠)~! THANK YOU♡_
 
 ### favorite character & fandom..⁠♡ ###
-1. UMA = oguri cap ° haru urara ° espoir city ° gold ship ° curren chan ° curren bouquetd
+1. UMA = oguri cap ° haru urara ° espoir city ° gold ship ° curren chan ° curren bouquetd’or
 2. r1999 = satsuki ° X
 3. crk = dark cocao ° lemon cookie ° Charcoal cookie ° Venom dough
 4. PTN = F/CHIEF
