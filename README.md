@@ -3,10 +3,11 @@ _hiii hiii from umamusume YURI YURI lesbian (⁠ㆁ⁠ω⁠ㆁ⁠)~! THANK YOU�
 
 ![IMG_20260219_092950](https://github.com/user-attachments/assets/11949d02-6d6b-4f57-abb2-ec6fc9919144)
 “espoir city x buena vista“
+
 ———————— MY SHIP YURI —————————————
 
 ### favorite character & fandom..⁠♡ ###
-1. UMA = oguri cap ° haru urara ° espoir city ° gold ship ° curren chan ° curren bouquetd’or
+1. UMA = oguri cap ° haru urara ° espoir city ° gold ship ° curren chan ° curren bouquetd’or ° stay gold 
 2. r1999 = satsuki ° X
 3. crk = dark cocao ° lemon cookie ° Charcoal cookie ° Venom dough
 4. PTN = F/CHIEF
