@@ -3,8 +3,7 @@ _hiii hiii from umamusume YURI YURI lesbian (⁠ㆁ⁠ω⁠ㆁ⁠)~! THANK YOU�
 
 ![IMG_20260302_094030](https://github.com/user-attachments/assets/a3da7ff5-ebae-40ed-abda-b07dca182b28)
 
-
-———————— MY FAMILY gold —————————————
+———————— MY FAMILY GOLD —————————————
 
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city ° gold ship ° curren chan ° curren bouquetd’or ° stay gold 
