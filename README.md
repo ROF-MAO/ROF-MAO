@@ -1,10 +1,10 @@
 ![IMG_20260215_113726](https://github.com/user-attachments/assets/92797272-a684-41c3-8d49-c57540af1217)
 _hiii hiii from umamusume YURI YURI lesbian (⁠ㆁ⁠ω⁠ㆁ⁠)~! THANK YOU♡_
 
-![IMG_20260219_092950](https://github.com/user-attachments/assets/11949d02-6d6b-4f57-abb2-ec6fc9919144)
-“espoir city x buena vista“
+![IMG_20260302_094030](https://github.com/user-attachments/assets/a3da7ff5-ebae-40ed-abda-b07dca182b28)
 
-———————— MY SHIP YURI —————————————
+
+———————— MY FAMILY gold —————————————
 
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city ° gold ship ° curren chan ° curren bouquetd’or ° stay gold 
