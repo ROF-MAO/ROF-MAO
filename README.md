@@ -1,5 +1,5 @@
-![IMG_20260215_113726](https://github.com/user-attachments/assets/92797272-a684-41c3-8d49-c57540af1217)
-_hiii hiii from umamusume YURI YURI lesbian (⁠ㆁ⁠ω⁠ㆁ⁠)~! THANK YOU♡_
+![IMG_20260311_144228](https://github.com/user-attachments/assets/0a055430-459d-414f-806d-8c034391fd74)
+***WHAT DON’T FRIEND?***
 
 ![IMG_20260311_084831](https://github.com/user-attachments/assets/f74d6131-fbac-42c6-a193-7c3fc2ac0172)
 
