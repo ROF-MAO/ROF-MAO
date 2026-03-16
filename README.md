@@ -1,9 +1,9 @@
-![IMG_20260311_144228](https://github.com/user-attachments/assets/0a055430-459d-414f-806d-8c034391fd74)
-***WHAT DON’T FRIEND?***
+![IMG_20260316_185506](https://github.com/user-attachments/assets/b0fad35a-2db0-4ef9-8b63-d04fdc71e44f)
+***my love good bye...***
 
-![IMG_20260311_084831](https://github.com/user-attachments/assets/f74d6131-fbac-42c6-a193-7c3fc2ac0172)
+![IMG_20260316_185525](https://github.com/user-attachments/assets/2a315deb-f80c-4f8e-b895-5d9761cea177)
 
-———————— 💜♡💜 —————————————
+———————— 🦖 & 💢 —————————————
 
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city♡ ° gold ship ° curren chan ° curren bouquetd’or♡ ° stay gold♡ ° casino drive♡ ° Marche Lorraine
