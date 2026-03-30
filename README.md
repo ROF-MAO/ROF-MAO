@@ -1,5 +1,5 @@
-![IMG_20260316_185506](https://github.com/user-attachments/assets/b0fad35a-2db0-4ef9-8b63-d04fdc71e44f)
-***my love good bye...***
+![IMG_20260330_111442](https://github.com/user-attachments/assets/a906b2d3-8130-48d4-bcfd-e3eea018a82a)
+***my best friend love! le,s go!!***
 
 ![IMG_20260324_115900](https://github.com/user-attachments/assets/2c47b553-76fd-4c30-9d0a-e54139124a07)
 
