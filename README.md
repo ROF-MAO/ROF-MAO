@@ -17,7 +17,7 @@
 9. arknights endfield = yvonne♡ ° pogranichnik ° endministrator♡ ° ardashir ° ember♡
 10. PJSK / VOCALOID = HATSUNE MIKU♡ ° TETO ° NERU♡ ° VFLOWER♡ ° FUKASE♡ ° EMU OTORI ° MOMOI AIRI♡ 
 ### ✧⁠*⁠。OSHI...⁠♡ OH VTUBER UR COOL...! ° KAMIOSHI = ♡~! CUTE TOO!!
-1. hololive = 🌙♡ ° 💅✨° 🖋️ ° 💄 ° ☔♡ ° 🧟‍♀️ ° 🌽👑
+1. hololive = 🌙♡ ° 💅✨° 🖋️♡ ° 💄 ° ☔♡ ° 🧟‍♀️ ° 🌽👑 ° 🐾🩷♡
 2. holostars = 🖌️♡ ° 🦝 ° 🎇 ° ⛓️ ° 🔆 ° 🦖♡
 3. FSP = 🌋🍖 × ♈💜♡ blazelust ° 🪽🟢~♡ ° 👻⛩️
 4. NIJI EN/JP = ♦️☕ ° 🔑🐍 ° ⚔️♡ ° ☯️♡ ° 🧢🪽 ° 🏰🍬♡ ° 💗🌕 ° 🐧❄️ ° 🖋️♡ ° 🎧 ° 🔗🤲 ° 🤟♡ ° 💋💅 ° 🌂🕸️♡ ° 🐣🎡 ° 🥽 ° 💳💨♡ ° 🎫👓 ° 📒♡
