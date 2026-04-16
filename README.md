@@ -1,9 +1,10 @@
-![IMG_20260330_111442](https://github.com/user-attachments/assets/a906b2d3-8130-48d4-bcfd-e3eea018a82a)
-***my best friend love! le,s go!!***
+### TF AND MCB FAVORITE...♡ ###
+<img width="720" height="492" alt="IMG_20260416_115641" src="https://github.com/user-attachments/assets/c22259f7-a398-4521-bc97-dd961054dc82" />
 
-![IMG_20260324_115900](https://github.com/user-attachments/assets/2c47b553-76fd-4c30-9d0a-e54139124a07)
+_my oc my brother sidewipe_
 
-———————— 💙 & ❤️ —————————————
+<img width="720" height="782" alt="IMG_20260416_115730" src="https://github.com/user-attachments/assets/896e4bda-c407-4e27-8ec2-87e44d736579" />
+———————— 💙 & 🖤 —————————————
 
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city♡ ° gold ship ° curren chan ° curren bouquetd’or♡ ° stay gold♡ ° casino drive♡ ° Marche Lorraine
