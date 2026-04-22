@@ -11,7 +11,7 @@ _my oc my brother sidewipe_
 2. r1999 = satsuki♡ ° X
 3. crk = dark cocao♡ ° lemon cookie ° Charcoal cookie ° Venom dough♡
 4. TF & MCB = optimus prime♡ ° bumblebee ° sideswipe♡ ° steeijaw♡ ° knockout ° grimlock♡ ° / black hook♡ ° heavy iron ° cielo♡ ° flame nova♡ ° tachi♡ ° JUN♡ ° blue cop♡ ° musclehyde ° shadow x♡
-5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon♡ ° aventurine ° Kevin kaslana♡ ° Dreamweaver ° THE FINAL LESSON🥀🥀🥀 ° ashveil ° severian lowell♡ ° kaeya♡
+5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon♡ ° aventurine ° Kevin kaslana♡ ° Dreamweaver ° THE FINAL LESSON🥀🥀🥀 ° ashveil ° severian lowell♡ ° kaeya♡ ° prune♡
 6. WUWA = galbrena ° Luuk♡ ° avidius ° cristoforo♡ 
 7. DANDADAN = vamola x zuma my ship!?  >_<~!
 8. NINJA GO = LLOYD♡ ° KAI X COLE MY SHIP!!!!
