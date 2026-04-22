@@ -23,14 +23,10 @@ _my oc my brother sidewipe_
 3. FSP = 🌋🍖 × ♈💜♡ blazelust ° 🪽🟢~♡ ° 👻⛩️
 4. NIJI EN/JP = ♦️☕ ° 🔑🐍 ° ⚔️♡ ° ☯️♡ ° 🧢🪽 ° 🏰🍬♡ ° 💗🌕 ° 🐧❄️ ° 🖋️♡ ° 🎧 ° 🔗🤲 ° 🤟♡ ° 💋💅 ° 🌂🕸️♡ ° 🐣🎡 ° 🥽 ° 💳💨♡ ° 🎫👓 ° 📒♡
    
-***YOUR YAOI!!!***
-   
-![IMG_20260410_145451](https://github.com/user-attachments/assets/52057531-c030-4bfe-8b74-3df7fead678c)
-![IMG_20260410_145521](https://github.com/user-attachments/assets/1cfd0918-dd4d-4a14-90c7-be9c60cc9beb)
-![IMG_20260410_145544](https://github.com/user-attachments/assets/830eaa53-135f-4713-9d42-0a147f4be0d8)
-![IMG_20260410_145640](https://github.com/user-attachments/assets/5d7c9224-d194-4d27-b99e-d8bee8e78290)
+<img width="720" height="436" alt="IMG_20260422_132841" src="https://github.com/user-attachments/assets/33e97ce2-c947-4643-9a70-5bb687f5933b" />
 
-***love you miss...tf♡***
+_MY SHIP YAOI_
 
-![IMG_20260410_145612](https://github.com/user-attachments/assets/572bfa89-9a5b-4ffb-9e89-fb68d7596244)
-***MY SON THANK YOU SIR...!!***
+<img width="720" height="381" alt="IMG_20260422_132902" src="https://github.com/user-attachments/assets/9f70eb11-275e-4eb9-9919-c5d9219919db" />
+
+_uhh guys THANK YOU SIR😊...!_
