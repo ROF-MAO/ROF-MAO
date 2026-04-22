@@ -25,7 +25,7 @@ _my oc my brother sidewipe_
    
 <img width="720" height="436" alt="IMG_20260422_132841" src="https://github.com/user-attachments/assets/33e97ce2-c947-4643-9a70-5bb687f5933b" />
 
-_MY SHIP YAOI_
+_MY SHIP YAOI~!_
 
 <img width="720" height="381" alt="IMG_20260422_132902" src="https://github.com/user-attachments/assets/9f70eb11-275e-4eb9-9919-c5d9219919db" />
 
