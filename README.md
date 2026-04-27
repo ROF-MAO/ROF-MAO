@@ -18,8 +18,8 @@ _my oc my brother sidewipe_
 9. arknights endfield = yvonne♡ ° pogranichnik ° endministrator♡ ° ardashir ° ember♡
 10. PJSK / VOCALOID = HATSUNE MIKU♡ ° TETO ° NERU♡ ° VFLOWER♡ ° FUKASE♡ ° EMU OTORI ° MOMOI AIRI♡ 
 ### ✧⁠*⁠。OSHI...⁠♡ OH VTUBER UR COOL...! ° KAMIOSHI = ♡~! CUTE TOO!!
-1. hololive = 🌙♡ ° 💅✨° 🖋️♡ ° 💄 ° ☔♡ ° 🧟‍♀️ ° 🌽👑 ° 🐾🩷♡
-2. holostars = 🖌️♡ ° 🦝 ° 🎇 ° ⛓️ ° 🔆 ° 🦖♡
+1. hololive = murasaki shion🌙♡ ° vivi💅✨° ao ch🖋️♡ ° erb💄 ° kobo☔♡ ° ollie🧟‍♀️ ° fubuki🌽👑 ° mococo🐾🩷♡
+2. holostars = gamma🖌️♡ ° fuma🦝 ° altare🎇 ° axel⛓️ ° Hakka🔆 ° Jurard🦖♡
 3. FSP = 🌋🍖 × ♈💜♡ blazelust ° 🪽🟢~♡ ° 👻⛩️
 4. NIJI EN/JP = ♦️☕ ° 🔑🐍 ° ⚔️♡ ° ☯️♡ ° 🧢🪽 ° 🏰🍬♡ ° 💗🌕 ° 🐧❄️ ° 🖋️♡ ° 🎧 ° 🔗🤲 ° 🤟♡ ° 💋💅 ° 🌂🕸️♡ ° 🐣🎡 ° 🥽 ° 💳💨♡ ° 🎫👓 ° 📒♡
    
