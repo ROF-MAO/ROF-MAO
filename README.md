@@ -20,7 +20,7 @@ _I Miss HIM MY KAMIOSIH🥹_
 ### ✧⁠*⁠。OSHI...⁠♡ OH VTUBER UR COOL...! ° KAMIOSHI = ♡~! CUTE TOO!!
 1. hololive = murasaki shion🌙♡ ° vivi💅✨° ao ch🖋️♡ ° erb💄 ° kobo☔♡ ° ollie🧟‍♀️ ° fubuki🌽👑 ° mococo🐾🩷♡
 2. holostars = gamma🖌️♡ ° fuma🦝 ° altare🎇 ° axel⛓️ ° Hakka🔆 ° Jurard🦖♡
-3. FSP = 🌋🍖 × ♈💜♡ blazelust ° 🪽🟢~♡ ° 👻⛩️
+3. FSP = ryzar blazenfang🌋🍖 × zander netherbrand♈💜♡ blazelust♡ ° ashkariel🪽🟢~♡ ° shiki katagami👻⛩️
 4. NIJI EN/JP = ♦️☕ ° 🔑🐍 ° ⚔️♡ ° ☯️♡ ° 🧢🪽 ° 🏰🍬♡ ° 💗🌕 ° 🐧❄️ ° 🖋️♡ ° 🎧 ° 🔗🤲 ° 🤟♡ ° 💋💅 ° 🌂🕸️♡ ° 🐣🎡 ° 🥽 ° 💳💨♡ ° 🎫👓 ° 📒♡
    
 <img width="720" height="436" alt="IMG_20260422_132841" src="https://github.com/user-attachments/assets/33e97ce2-c947-4643-9a70-5bb687f5933b" />
