@@ -1,10 +1,10 @@
-### TF AND MCB FAVORITE...♡ ###
-<img width="720" height="492" alt="IMG_20260416_115641" src="https://github.com/user-attachments/assets/c22259f7-a398-4521-bc97-dd961054dc82" />
+### ⁠✯ HOLO & VTUBER ME ^W^...♡ ###
+<img width="720" height="506" alt="IMG_20260428_175451" src="https://github.com/user-attachments/assets/96a8356e-6e72-4936-b753-81555f2442ea" />
 
-_my oc my brother sidewipe_
+_I Miss HIM MY KAMIOSIH🥹_
 
-<img width="720" height="782" alt="IMG_20260416_115730" src="https://github.com/user-attachments/assets/896e4bda-c407-4e27-8ec2-87e44d736579" />
-———————— 💙 & 🖤 —————————————
+<img width="712" height="429" alt="IMG_20260428_175428" src="https://github.com/user-attachments/assets/7c7df458-7b13-4573-b14a-5209b3263ef2" />
+———————— 💙 & 🧡 —————————————
 
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city♡ ° gold ship ° curren chan ° curren bouquetd’or♡ ° stay gold♡ ° casino drive♡ ° Marche Lorraine
@@ -25,7 +25,7 @@ _my oc my brother sidewipe_
    
 <img width="720" height="436" alt="IMG_20260422_132841" src="https://github.com/user-attachments/assets/33e97ce2-c947-4643-9a70-5bb687f5933b" />
 
-_MY SHIP YAOI~!_
+_MY TFP ship YOAI~!_
 
 <img width="720" height="381" alt="IMG_20260422_132902" src="https://github.com/user-attachments/assets/9f70eb11-275e-4eb9-9919-c5d9219919db" />
 
