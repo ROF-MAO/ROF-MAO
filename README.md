@@ -8,7 +8,7 @@ _I Miss HIM MY KAMIOSIH🥹_
 
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city♡ ° gold ship ° curren chan ° curren bouquetd’or♡ ° stay gold♡ ° casino drive♡ ° Marche Lorraine
-2. r1999 = satsuki♡ ° X
+2. r1999 = satsuki♡ ° X ° semmelweis♡ ° baby blue♡ ° bunny bunny 
 3. crk = dark cocao♡ ° lemon cookie ° Charcoal cookie ° Venom dough♡
 4. TF & MCB = optimus prime♡ ° bumblebee ° sideswipe♡ ° steeijaw♡ ° knockout ° grimlock♡ ° / black hook♡ ° heavy iron ° cielo♡ ° flame nova♡ ° tachi♡ ° JUN♡ ° blue cop♡ ° musclehyde ° shadow x♡
 5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon♡ ° aventurine ° Kevin kaslana♡ ° Dreamweaver ° THE FINAL LESSON🥀🥀🥀 ° ashveil ° severian lowell♡ ° kaeya♡ ° prune♡
