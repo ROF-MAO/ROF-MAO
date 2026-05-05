@@ -3,8 +3,8 @@
 
 _HEH WHAT? HELLO NICE MEET?_
 
-<img width="712" height="429" alt="IMG_20260428_175428" src="https://github.com/user-attachments/assets/7c7df458-7b13-4573-b14a-5209b3263ef2" />
-———————— 💙 & 🧡 —————————————
+<img width="720" height="386" alt="IMG_20260505_120936" src="https://github.com/user-attachments/assets/014c0269-522f-4e67-814d-0eb69a4dcdb7" />
+———————— 🩶 & 💛 —————————————
 
 ### favorite character & fandom..⁠♡ ###
 1. UMA = oguri cap ° haru urara ° espoir city♡ ° gold ship ° curren chan ° curren bouquetd’or♡ ° stay gold♡ ° casino drive♡ ° Marche Lorraine
