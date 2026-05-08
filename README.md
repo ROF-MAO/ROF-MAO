@@ -6,17 +6,6 @@ _HEH WHAT? HELLO NICE MEET?_
 <img width="720" height="386" alt="IMG_20260505_120936" src="https://github.com/user-attachments/assets/014c0269-522f-4e67-814d-0eb69a4dcdb7" />
 ———————— 🩶 & 💛 —————————————
 
-### favorite character & fandom..⁠♡ ###
-1. UMA = oguri cap ° haru urara ° espoir city♡ ° gold ship ° curren chan ° curren bouquetd’or♡ ° stay gold♡ ° casino drive♡ ° Marche Lorraine
-2. r1999 = satsuki♡ ° X ° semmelweis♡ ° baby blue♡ ° bunny bunny 
-3. crk = dark cocao♡ ° lemon cookie ° Charcoal cookie ° Venom dough♡
-4. TF & MCB = optimus prime♡ ° bumblebee ° sideswipe♡ ° steeijaw♡ ° knockout ° grimlock♡ ° / black hook♡ ° heavy iron ° cielo♡ ° flame nova♡ ° tachi♡ ° JUN♡ ° blue cop♡ ° musclehyde ° shadow x♡
-5. hoyoverse = VARKA ° NEVI ° Hugo vlad ° phainon♡ ° aventurine ° Kevin kaslana♡ ° Dreamweaver ° THE FINAL LESSON🥀🥀🥀 ° ashveil ° severian lowell♡ ° kaeya♡ ° prune♡
-6. WUWA = galbrena ° Luuk♡ ° avidius ° cristoforo♡ 
-7. DANDADAN = vamola x zuma my ship!?  >_<~!
-8. NINJA GO = LLOYD♡ ° KAI X COLE MY SHIP!!!!
-9. arknights endfield = yvonne♡ ° pogranichnik ° endministrator♡ ° ardashir ° ember♡
-10. PJSK / VOCALOID = HATSUNE MIKU♡ ° TETO ° NERU♡ ° VFLOWER♡ ° FUKASE♡ ° EMU OTORI ° MOMOI AIRI♡ 
 ### ✧⁠*⁠。OSHI...⁠♡ OH VTUBER UR COOL...! ° KAMIOSHI = ♡~! CUTE TOO!!
 1. hololive = murasaki shion🌙♡ ° vivi💅✨° ao ch🖋️♡ ° erb💄 ° kobo☔♡ ° ollie🧟‍♀️ ° fubuki🌽👑 ° mococo🐾🩷♡
 2. holostars = gamma🖌️♡ ° fuma🦝 ° altare🎇 ° axel⛓️ ° Hakka🔆 ° Jurard🦖♡
