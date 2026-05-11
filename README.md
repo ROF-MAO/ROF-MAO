@@ -1,7 +1,7 @@
-### ⁠✯ I love u R1999♡ ###
-<img width="720" height="764" alt="IMG_20260504_184931" src="https://github.com/user-attachments/assets/e5c2a8cc-e3ff-41c1-973e-e94bcfeb6e94" />
+### ⁠✯ I love u shigure kira♡ ###
+<img width="720" height="688" alt="IMG_20260511_114354" src="https://github.com/user-attachments/assets/649bd4a4-1c82-4beb-a570-92553d6ebc0d" />
 
-_HEH WHAT? HELLO NICE MEET?_
+_im shigure kira uh copy not.. fr hi3 my ice!!!_
 
 <img width="720" height="386" alt="IMG_20260505_120936" src="https://github.com/user-attachments/assets/014c0269-522f-4e67-814d-0eb69a4dcdb7" />
 ———————— 🩶 & 💛 —————————————
