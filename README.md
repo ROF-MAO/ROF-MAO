@@ -1,7 +1,7 @@
-### ⁠✯ I love u shigure kira♡ ###
-<img width="720" height="688" alt="IMG_20260511_114354" src="https://github.com/user-attachments/assets/649bd4a4-1c82-4beb-a570-92553d6ebc0d" />
+### ⁠✯ I love u prune juice cookie♡ ###
+<img width="690" height="703" alt="IMG_20260521_090808" src="https://github.com/user-attachments/assets/86814c22-740d-4614-a604-c880bee6a32e" />
 
-_im shigure kira uh copy not.. fr hi3 my ice!!!_
+_im prune juice cookie uh copy not.. fr crk my 🔮🧪!!!_
 
 <img width="720" height="386" alt="IMG_20260505_120936" src="https://github.com/user-attachments/assets/014c0269-522f-4e67-814d-0eb69a4dcdb7" />
 ———————— 🩶 & 💛 —————————————
